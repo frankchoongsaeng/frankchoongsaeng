@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+### Hi there 👋
+I am Nwokafor Frank Choongsaeng Ebuka from Nigeria.
+###  ⚡ Fun fact ###
+I know that's a lot to remember, So Frank is just fine.
+- was a student of Accra Institute of Technology, BSc Computer Science.
+- LOVE TO CODE ~ and solve coding problems.
+
+There isn't much more to say about myself except that I am easy-going and happy.
+And on that note, I am happy to meet you!!!.
